@@ -1,1 +1,1 @@
-xin chao con cho nguu 
+chỉ có một con chó
